@@ -47,4 +47,4 @@ IN almost 29 states | extent of this campaign
 ----------------|--------------------
 
 
-:sparkles: Lets PLedge to Clean India and Make India a more beautiful place to live in :sparkles: 
+:sparkles: Lets PLedge to Clean India and Make India a more beautiful place to live in. :sparkles: 
